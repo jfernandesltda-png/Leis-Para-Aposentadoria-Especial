@@ -1,2 +1,2 @@
 # Leis-Para-Aposentadoria-Especial
-Leis que descrevem o direito do trabalhador a aposentadoria especial, algo que na maioria das vezes precisa ser judicializado
+Leis que descrevem o direito do trabalhador a aposentadoria especial, algo que na maioria das vezes precisa ser judicializado,devidoa enorme dificuldade de provar ao inss o tempo de trabalho periculoso denominado especial, decidi por conta propria verificar em quais leis esse beneficio ao trabalhador esta amparado na constituição quanto em leis publicadas ao longo do tempo
